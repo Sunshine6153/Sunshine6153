@@ -26,6 +26,3 @@ and [妃爱应援网站]https://hiyori.top to find more.
 
 ## 🤝 Let's Connect!
 
-I welcome anyone who is interested in my projects or just wants to chat about ACG culture or technology exploration!
-
-**✨ Thanks for stopping by, and I hope you found something interesting!**
